@@ -16,6 +16,7 @@
 1. Sit-ups - push hands up
 1. Run on treadmill (treadmill off)
 1. Legs up/open/close/down
+1. Legs low/middle/up - hold and alternate
 1. Legs in slider - move back and forth
 1. Push the slide
 1. Slam medicine ball on the floor
@@ -33,6 +34,10 @@
 1. Half ball - One hand on pushups w/ jump and change hand
 1. Use a step and jump side to side
 1. Use a step and jump on and off
+1. Use a step and alternate legs
 1. Pull-ups position - Lift legs to chest / Stretch legs forward
 1. Mountain climbers
-1. Downward dog - heel stretch - pushup position - knee pulls to opposite elbows
+1. Downward dog - heel stretch - pushup position - knee pulls to opposite elbows - pushups - Side plank - pushups - Side plank - Downward dog - Start over
+1. Rubber ball - back on the floor, legs on ball, lift torso and pull knees
+1. Rubber ball - back on the floor, one leg on ball, lift torso and start pushing other leg up and down (1-2 inch)
+1. Rubber ball, sheens on ball, pull knees to the chest
