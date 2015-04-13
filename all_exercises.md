@@ -34,3 +34,5 @@
 1. Use a step and jump side to side
 1. Use a step and jump on and off
 1. Pull-ups position - Lift legs to chest / Stretch legs forward
+1. Mountain climbers
+1. Downward dog - heel stretch - pushup position - knee pulls to opposite elbows
